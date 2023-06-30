@@ -1,7 +1,8 @@
 - 👋 Hi, I’m David Tumenta
 - 👀 I’m interested in software and video games development
 - 🌱 I’m currently learning unity
-- 💞️ I’m looking to collaborate on ...
+- 💞️ Relationship:
+   i was dating a witch  🤷🏾‍♂️
 - 📫 How to reach me : https://www.linkedin.com/in/david-funyi-t-56360389/
 
 or
